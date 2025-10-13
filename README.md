@@ -1,11 +1,11 @@
 Here's some good site:
 
 https://ai-photo-prompt.com
-Title: Best AI Photo Prompts - Discover Excellent AI Image Ideas - AI Photo Prompts
+Best AI Photo Prompts - Discover Excellent AI Image Ideas - AI Photo Prompts
 Explore top AI photo prompts! Our site features curated, excellent AI image generation prompts to help you create stunning artwork easily. Get inspired and elevate your AI skills today.
 
 https://ai-image-prompt.com
-Title: AI Image Prompt Gallery – Nano Banana & GPT-4o
+AI Image Prompt Gallery – Nano Banana & GPT-4o
 #1 Explore curated AI image prompts, reproducible workflows, and cyberpunk-ready visuals crafted with Nano Banana and GPT-4o.
 
 https://sumudflotillatracker.com
