@@ -1,5 +1,5 @@
 
-Here's some good site:
+Here're some good sites:
 
 #### https://ai-photo-prompt.com
 #### Best AI Photo Prompts - Discover Excellent AI Image Ideas - AI Photo Prompts
